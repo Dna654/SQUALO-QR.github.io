@@ -1,0 +1,1 @@
+# SQUALO-QR.github.io
